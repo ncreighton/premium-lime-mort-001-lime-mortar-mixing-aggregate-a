@@ -1,0 +1,2 @@
+# premium-lime-mort-001-lime-mortar-mixing-aggregate-a
+Stop guessing your lime mortar ratios and start replicating perfect batches every time. The 'Lime Mortar Mixing Aggregate and Cure Log' turns your trial-and-error into a repeatable, data-driven craft.  This Notion template eliminates the guesswork from lime mortar mixing by providing a structured log for every variable: aggregate type, sand gradati
